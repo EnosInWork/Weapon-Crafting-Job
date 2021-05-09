@@ -4,5 +4,5 @@
 
 [Vidéo présentation](https://youtu.be/ZAMl1zCiShs)
 
-Crédit : Haci <3
+Crédit : Enos x Haci <3
  
